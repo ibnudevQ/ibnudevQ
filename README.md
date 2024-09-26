@@ -20,4 +20,4 @@ I'm a full stack developer...
 
 😄 Pronouns: She/Her.
 
-⚡️ Fun fact: I once built a small game using HTML, CSS, and JavaScript that went viral among my friends!
+⚡️ Fun fact: I enjoy playing games in my free time
