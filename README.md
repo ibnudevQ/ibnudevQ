@@ -18,6 +18,6 @@ I'm a full stack developer...
 
 📫 How to reach me: You can contact me through my LinkedIn or send me an email at [ibnudev59@gmail.com].
 
-😄 Pronouns: She/Her.
+🦄 Fun Fact: I love coffee! There's nothing like a perfect cup to kickstart my day or fuel my creative projects.
 
 ⚡️ Fun fact: I enjoy playing games in my free time
